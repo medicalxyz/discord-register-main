@@ -1,1 +1,1 @@
-# discord-register-main
+15 STARS DA PAYLAŞILACAK
